@@ -8,4 +8,6 @@ Meu nome é Lucas
 
 - ### você pode entrar em contato comigo 📫
 
-00001120451279
+00001120451279sp@al.educacao.sp.gov.br
+
+![image](https://github.com/user-attachments/assets/10bf57f5-fbd3-4b4f-91bd-0fe70ce1a5f3)
